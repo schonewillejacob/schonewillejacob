@@ -1,16 +1,1 @@
-Ripped from: Philip Kaulfuss
-              .     :     .
-            .  :    |    :  .
-             .  |   |   |  ,
-              \  |     |  /
-          .     ,-'"""`-.     .
-            "- /  __ __  \ -"
-              |==|  I  |==|
-        - --- | _`--^--'_ | --- -
-              |'`.     ,'`|
-            _- \  "---"  / -_
-          .     `-.___,-'     .
-              /  |     |  \
-            .'  |   |   |  `.
-               :    |    :
-              .     :     .
+Currently available for projects and employment. HMU!
